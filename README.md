@@ -1,4 +1,5 @@
 # hello-world
-Test1
 
-La clase política deberá de desaparecer para poder crecer como sociedad, va a llevar un momento en el cual va a ser insostenible el gasto público, ya que los gobiernos solo endeudan a los estados y por tanto a la Federalción, debido a desvio de fondos de todos los politicos corruptos, sus complices, sus actores, quienes se benefician directa o indirectamtne, transaccionando con el dinero de la población por inmuebles, autos, enceres de lujo, ropa de marcas europeas, y un sin fin de articulos que pagamos la clase productiva de nuestra Nación. 
+Hola, me dedico a el negocio hipotecario, desde un punto de vista financiero, ya que trabajo para un banco. Mi función especifica es la de jurídico, en el proceso de créditos con garantía hipotecaria. 
+
+En mis tiempos libres me gusta tocar el bajo electrico. El bajo electrico es un instrumento de cuerdas, los números de cuerdas mas utilizadas para el instrumento varía entre 4 y 5, es un instrumento que le permite agregar profundidad a una armonia, al igual que, de acompañar a una melodia.
